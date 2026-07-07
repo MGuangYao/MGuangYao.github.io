@@ -1,6 +1,6 @@
 
 
-[![ENZOwuAAA](https://img.shields.io/badge/ENZOwuAAA-github-blue?logo=github)](https://github.com/ENZOwuAAA)
+[![MGuangYao](https://img.shields.io/badge/MGuangYao-github-blue?logo=github)](https://github.com/MGuangYao)
 
 思想上积极向党组织靠拢，紧跟党的步伐，现已成为一名光荣的中共党员；笃志好学，本科平均学分绩点、综合素质测评成绩均排名专业第一；潜心科研，担任校级创新创业团队负责人，主持校级科研项目1项，基于项目研究成果，参与发表论文1篇，持有软件著作权11项；专注竞赛，累计荣获5项国家级奖励，15项省级奖励，20余项校级奖励；投身志愿，积极参与“三下乡暑期社会实践”、爱心支教等志愿活动，累计志愿服务时长735h。担任学院组织部副部长、班级团支部书记等多个职务，组织开展各类活动约50余次。
 
